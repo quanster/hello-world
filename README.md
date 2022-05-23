@@ -8,3 +8,5 @@ May 23, 2022
 
 QUAD 
 Japan-Australia-India-U.S. (Quad) share fundamental values and are committed to strengthening a free and open international order based on the rule of law. The four countries have been promoting practical cooperation in various fields, including vaccines, infrastructure, climate change, and critical and emerging technologies, to realize a "Free and Open Indo-Pacific (FOIP)." The four countries have also concurred on the importance of making positive contribution to the region.
+
+Dinner Commitment - yum yum
